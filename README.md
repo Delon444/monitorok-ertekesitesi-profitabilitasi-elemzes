@@ -1,0 +1,1 @@
+# monitorok-ertekesitesi-profitabilitasi-elemzes
